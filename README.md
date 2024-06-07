@@ -1,2 +1,0 @@
-# donatogiovannelli.com
-donatogiovannelli.com
